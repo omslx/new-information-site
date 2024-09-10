@@ -1,2 +1,1 @@
-# new-information-site
-this site for information users
+copy right for mslx at 2024
